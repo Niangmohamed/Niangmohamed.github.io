@@ -1,3 +1,3 @@
 # My Personal Website
 
-My personal website.
+© Mohamed Niang. All rights reserved.
